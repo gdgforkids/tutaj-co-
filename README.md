@@ -7,3 +7,4 @@ jestem kot i lubię bawić sie piłkom i wendkom
 ![kot he he](https://user-images.githubusercontent.com/123213981/213862902-95387021-9ee4-4b67-9bfe-ebdf705ecb6f.jpg)
 # lezanko i kuzyni i lezanko 
 
+![sLodziak](https://user-images.githubusercontent.com/123213981/213863037-4ac0c89d-7492-4a44-a35a-cd804f78b4d6.jpg)
